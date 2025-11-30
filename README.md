@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Mapping of forest cover, LULC Change, Hazard Mapping
 - 📫 How to reach me: ...sanjidaaec@gmail.com
 - 😄 Pronouns: ...She/Her
-- ⚡ Fun fact: ...listening music
+- ⚡ Fun fact: ...listening music, traveling and gradening
 
